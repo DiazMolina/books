@@ -23,7 +23,7 @@ El  viejo rey hizo el reparto y siguió hablando.
 
 – Cada bolsa contiene cien monedas de oro. ¡Creo que es una cantidad suficiente para que os vayáis de viaje durante un mes! Ya sois adultos, así que tenéis libertad para hacer lo que os apetezca y gastaros el dinero como os venga en gana.
 
-Los chicos se miraron estupefactos. Un  mes  para hacer lo que quisieran, como quisieran y donde quisieran… ¡y encima con todos los gastos pagados! Al escuchar la palabra ‘regalo’ habían imaginado una capa de gala o unos calzones de seda, pero para nada esta magnífica sorpresa.
+Los chicos se miraron estupefactos. Un  mes  para hacer lo que quisieran, como quisieran y donde quisieran… ¡y encima con todos los gastos pagados! Al escuchar la palabra regalo habían imaginado una capa de gala o unos calzones de seda, pero para nada esta magnífica sorpresa.
 
 – Mi única condición es que partáis este mediodía, así que id a preparar el equipaje mientras los criados ensillan los caballos. Dentro de treinta días, ni uno más ni uno menos, y exactamente a esta hora, nos reuniremos aquí y me contaréis vuestra experiencia ¿De acuerdo?
 
